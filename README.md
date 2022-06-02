@@ -1,2 +1,3 @@
 # My-bio
 Course 2 1.1.11 Practical activity
+International experience in treasury, cross asset trading, financial & capital risk management, debt issuance and corporate finance. Highly skilled project and general manager with a demonstrable record of delivering consistently substantial revenues. A detail oriented individual who can step back to develop, communicate and obtain buy in for the bigger picture. Proven ability to adapt, innovate, incubate & transform businesses and generate sustainable results via strong team skills together with recruitment, coaching and management experience. Resilient against adversity with uncompromising ethical standards. 
